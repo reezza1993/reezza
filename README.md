@@ -3,4 +3,6 @@
 
 https://piratecash.io/?pirate=255353
 
-generator.email
+https://generator.email
+
+https://golden-farm.biz/?en=rezahad
